@@ -1,0 +1,1 @@
+•profile picture and info picture too large on desktop
